@@ -1,5 +1,5 @@
 # 👋 Hi, I'm Trinh!
-👩🏻‍💻 Software Engineer sharing about my journey and learnings in tech<br/>
+👩🏻‍💻 UX/UI Designer sharing about my journey and learnings in tech<br/>
 👩🏻‍🎓 Studied [Information Technology] at the Ho Chi Minh University of Industry and Technology(HUIT) <br/>
 🌷
 
